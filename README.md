@@ -1,4 +1,4 @@
-<p align="center">theres no games here, have this chao instead <img src="https://64.media.tumblr.com/806ab795348717f9b2ab32352d89b4f5/7120374fae5ff566-d2/s75x75_c1/31669114cef18777ec3ab8083cfd651d6e009aec.gifv" width="25" 
+<p align="center">theres no games here, have this chao instead <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/tinychao.gif?raw=true" width="25" 
      height="25"alt="chaoo"></p>
 
 <p align="center">
