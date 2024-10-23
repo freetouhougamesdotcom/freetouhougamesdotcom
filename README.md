@@ -1,4 +1,4 @@
-<p align="center">theres no games here, have this chao instead <img src="https://64.media.tumblr.com/806ab795348717f9b2ab32352d89b4f5/7120374fae5ff566-d2/s75x75_c1/31669114cef18777ec3ab8083cfd651d6e009aec.gifv" width="25" 
+![image](https://github.com/user-attachments/assets/e00f5f1f-6380-4418-a8f9-b941fd7a3ad7)<p align="center">theres no games here, have this chao instead <img src="https://64.media.tumblr.com/806ab795348717f9b2ab32352d89b4f5/7120374fae5ff566-d2/s75x75_c1/31669114cef18777ec3ab8083cfd651d6e009aec.gifv" width="25" 
      height="25"alt="chaoo"></p>
 
 <p align="center">
@@ -13,7 +13,9 @@
 
 ᯓ★⠀ current main interests !⠀⠀  touhou project, my little pony, kaiba, vocaloid, osamu sato, tf2, chao garden
 
-ᯓ★⠀⠀ retro tech, hardstyle music, 3rd gen kpop, ghost and pals, kikuo, steven universe, frutiger aero, nashimoto-p, shinsei kamttechan, vkei bands, machigerita-p
+ᯓ★⠀⠀ retro tech, hardstyle music, 3rd gen kpop, ghost and pals, kikuo, steven universe, frutiger aero, nashimoto-p, shinsei kamttechan, 
+
+ᯓ★⠀⠀ vkei bands, machigerita-p
 
  ~♡•⠀ other interests :⠀⠀ fnaf, genshin impact, lost media, monster high, junji ito, analog horror, 
  
