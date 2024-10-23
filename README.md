@@ -3,6 +3,7 @@
 
 <p align="center">
   <img src="https://64.media.tumblr.com/9ce7e4ee8851b429a854cc6efbdb6742/04a7b1b602e2353d-1a/s250x400/77d42dc4ba6798fb6dd03e69bfcc3b530b1eb927.gifv" alt="hellyea">
+     <img src="https://64.media.tumblr.com/80a4f74f1492d1f4ecd524647ea1cee1/53a08786935e468f-30/s250x400/c2621ff78c6fca08e05bbbd903a7828d1297d23b.gifv" alt="hekyea">
 </p>
 
 <p align="center">if you fit the <a href="https://basic-dni.crd.co">basic dni criteria</a> dont even try to interact to me !</p>
@@ -11,7 +12,7 @@
   <img src="https://64.media.tumblr.com/0c456c7159aec3498ccab646574a265d/66adcb333b7abb3c-57/s250x400/bf1bd705db167bc18d1d42ce02e14a1bdd345670.gifv" alt="bnuuypower">
 </p>
 
-ᯓ★⠀ current main interests !⠀⠀  touhou project, my little pony, kaiba, vocaloid, osamu sato, tf2, chao garden
+ᯓ★⠀ current main interests !⠀⠀  touhou project, my little pony, kaiba (2008 anime), vocaloid, osamu sato, tf2, chao garden
 
 ᯓ★⠀⠀ retro tech, hardstyle music, 3rd gen kpop, ghost and pals, kikuo, steven universe, frutiger aero, nashimoto-p,
 
