@@ -2,14 +2,14 @@
      height="25"alt="chaoo"></p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/9ce7e4ee8851b429a854cc6efbdb6742/04a7b1b602e2353d-1a/s250x400/77d42dc4ba6798fb6dd03e69bfcc3b530b1eb927.gifv" alt="hellyea">
-     <img src="https://64.media.tumblr.com/80a4f74f1492d1f4ecd524647ea1cee1/53a08786935e468f-30/s250x400/c2621ff78c6fca08e05bbbd903a7828d1297d23b.gifv" alt="hekyea">
+  <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/bipride.gif?raw=true" alt="hellyea">
+     <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/sexbeew.gif?raw=true" alt="hekyea">
 </p>
 
 <p align="center">if you fit the <a href="https://basic-dni.crd.co">basic dni criteria</a> dont even try to interact to me !</p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/0c456c7159aec3498ccab646574a265d/66adcb333b7abb3c-57/s250x400/bf1bd705db167bc18d1d42ce02e14a1bdd345670.gifv" alt="bnuuypower">
+  <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/lunaticredeyes.gif?raw=true" alt="bnuuypower">
 </p>
 
 ᯓ★⠀ current main interests !⠀⠀  touhou project, my little pony, kaiba (2008 anime), vocaloid, osamu sato, tf2, chao garden
@@ -30,7 +30,7 @@
 <p align="center">i already uploaded a tutorial for my old skins <a href="https://youtu.be/R4P4CtNqXOU?si=fnu0txqoI4f3B3W5">over here</a> you can check that out but don't claim them as yours!!</p>
      
  <p align="center">
-  <img src="https://64.media.tumblr.com/b03cf88287b569bfbde584f9be65159e/f85856f78ae1d7ea-c5/s250x400/1196462344d6bec021741e66cb79098b329ece70.gifv" alt="uraniumfever">
+  <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/imradioactive.gif?raw=true" alt="uraniumfever">
 </p>
 
  <p align="center">
@@ -40,10 +40,10 @@
 
 <p align="center">──────────﹒★﹒﹒─</p>
  <p align="center">
- <img src="https://64.media.tumblr.com/e6aa2a78e4fe1ad088a98551b186385e/7671494bc7a37263-ba/s250x400/3a98fdeb058b67cf0ec665cf26de146d56073ba5.gifv"alt="uuuu">
+ <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/ilovemypartner.gif?raw=true"alt="uuuu">
  </p>
 <p align="center">─﹒﹒★﹒──────────</p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/3c21e5261ac000e3ddc1b5d0f604167f/74eb2bf8bb567d0d-b5/s400x600/30399e7689f6942d7dfa2306b87d17ace28024c4.gifv" alt="moruu">
+  <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/heartlocket.gif?raw=true" alt="moruu">
 </p>
