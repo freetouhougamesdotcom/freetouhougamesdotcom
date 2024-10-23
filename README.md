@@ -34,7 +34,8 @@
 </p>
 
  <p align="center">
-  <img src="https://i.redd.it/64xcful87we91.jpg" alt="oguu">
+  <img src="https://i.redd.it/64xcful87we91.jpg"  width="350" 
+     height="400"alt="oguu">
 </p>
 
 <p align="center">──────────﹒★﹒﹒─</p>
