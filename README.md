@@ -13,9 +13,9 @@
 
 ᯓ★⠀ current main interests !⠀⠀  touhou project, my little pony, kaiba, vocaloid, osamu sato, tf2, chao garden
 
-ᯓ★⠀⠀ retro tech, hardstyle music, 3rd gen kpop, ghost and pals, kikuo, steven universe, frutiger aero, nashimoto-p, shinsei kamattechan, 
+ᯓ★⠀⠀ retro tech, hardstyle music, 3rd gen kpop, ghost and pals, kikuo, steven universe, frutiger aero, nashimoto-p,
 
-ᯓ★⠀⠀ vkei bands, machigerita-p
+ᯓ★⠀⠀ vkei bands, machigerita-p, shinsei kamattechan
 
  ~♡•⠀ other interests :⠀⠀ fnaf, genshin impact, lost media, monster high, junji ito, analog horror, 
  
