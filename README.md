@@ -8,11 +8,11 @@ if you fit the basic dni criteria dont even talk to me !
 
 ᯓ★⠀ current main interests !⠀⠀  touhou project, my little pony, kaiba, vocaloid, osamu sato, tf2, chao garden
 
-ᯓ★⠀⠀ retro tech, hardstyle music, 3rd gen kpop, ghost and pals, kikuo, steven universe
+ᯓ★⠀⠀ retro tech, hardstyle music, 3rd gen kpop, ghost and pals, kikuo, steven universe, frutiger aero
 
  ~♡•⠀ other interests :⠀⠀ fnaf, genshin impact, lost media, monster high, junji ito, analog horror, 
  
- ~♡• ⠀madoka magica, undertale, my deer friend shikanoko, gu-l
+ ~♡• ⠀madoka magica, undertale, my deer friend shikanoko, gu-l, annoying orange
 
  ![yummy](https://64.media.tumblr.com/b03cf88287b569bfbde584f9be65159e/f85856f78ae1d7ea-c5/s250x400/1196462344d6bec021741e66cb79098b329ece70.gifv)
 
