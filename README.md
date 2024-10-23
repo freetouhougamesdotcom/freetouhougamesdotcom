@@ -5,7 +5,7 @@
   <img src="https://64.media.tumblr.com/9ce7e4ee8851b429a854cc6efbdb6742/04a7b1b602e2353d-1a/s250x400/77d42dc4ba6798fb6dd03e69bfcc3b530b1eb927.gifv" alt="hellyea">
 </p>
 
-<p align="center">if you fit the <a href="https://basic-dni.crd.co">basic dni criteria</a> dont even dare thinking about talking to me !</p>
+<p align="center">if you fit the <a href="https://basic-dni.crd.co">basic dni criteria</a> dont even try to interact to me !</p>
 
 <p align="center">
   <img src="https://64.media.tumblr.com/0c456c7159aec3498ccab646574a265d/66adcb333b7abb3c-57/s250x400/bf1bd705db167bc18d1d42ce02e14a1bdd345670.gifv" alt="bnuuypower">
