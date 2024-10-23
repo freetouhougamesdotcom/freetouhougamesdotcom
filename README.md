@@ -1,10 +1,11 @@
-<p align="center">theres no games here sorgy :^3</p>
+<p align="center">theres no games here, have this chao instead <img src="https://64.media.tumblr.com/806ab795348717f9b2ab32352d89b4f5/7120374fae5ff566-d2/s75x75_c1/31669114cef18777ec3ab8083cfd651d6e009aec.gifv" width="25" 
+     height="25"alt="chaoo"></p>
 
 <p align="center">
   <img src="https://64.media.tumblr.com/9ce7e4ee8851b429a854cc6efbdb6742/04a7b1b602e2353d-1a/s250x400/77d42dc4ba6798fb6dd03e69bfcc3b530b1eb927.gifv" alt="hellyea">
 </p>
 
-<p align="center">if you fit the <a href="https://basic-dni.crd.co">basic dni criteria</a> dont talk to me !</p>
+<p align="center">if you fit the <a href="https://basic-dni.crd.co">basic dni criteria</a> dont even dare thinking about talking to me !</p>
 
 <p align="center">
   <img src="https://64.media.tumblr.com/0c456c7159aec3498ccab646574a265d/66adcb333b7abb3c-57/s250x400/bf1bd705db167bc18d1d42ce02e14a1bdd345670.gifv" alt="bnuuypower">
@@ -34,6 +35,9 @@
 </p>
 
 <p align="center">──────────﹒★﹒﹒─</p>
+ <p align="center">
+ <img src="https://64.media.tumblr.com/e6aa2a78e4fe1ad088a98551b186385e/7671494bc7a37263-ba/s250x400/3a98fdeb058b67cf0ec665cf26de146d56073ba5.gifv"alt="uuuu">
+ </p>
 <p align="center">─﹒﹒★﹒──────────</p>
 
 <p align="center">
