@@ -17,7 +17,7 @@
 
  ~♡•⠀ other interests :⠀⠀ fnaf, genshin impact, lost media, monster high, junji ito, analog horror, 
  
- ~♡• ⠀madoka magica, undertale, my deer friend shikanoko, gu-l, annoying orange
+ ~♡• ⠀madoka magica, undertale, my deer friend shikanoko, gu-l, annoying orange, hayao miyazaki, roblox
 
  
 <img src="https://i.pinimg.com/originals/30/21/9c/30219c1f331be24f73fb923da33889cf.gif" width="90" height="50"/><img src="https://i.pinimg.com/originals/40/b9/a8/40b9a8f02caa8d33d6324ee67edba1c4.gif" width="90" height="50"/><img src="https://i.pinimg.com/originals/3e/58/fe/3e58fe17650c1e99b230c2d95b8eb47a.gif" width="90" height="50"/><img src="https://i.pinimg.com/originals/ac/73/ab/ac73ab7064d3d086ec0016ac384b5506.gif" width="90" height="50"/><img src="https://i.pinimg.com/originals/36/ce/7f/36ce7f19e23442e11fc70ee146f614fc.gif" width="90" height="50"/><img src="https://i.pinimg.com/originals/81/e5/ae/81e5ae572ce15b0e382e9d3bd8376216.gif" width="90" height="50"/><img src="https://i.pinimg.com/originals/34/4f/fb/344ffb65518cdcdc575f7c7d1ed048c8.gif" width="90" height="50"/><img src="https://i.pinimg.com/originals/c7/c4/ab/c7c4ab7c0efb88af11310e8147ca5853.gif" width="90" height="50"/><img src="https://i.pinimg.com/originals/10/8f/b6/108fb6ff296c4bddf35befbd4973d239.gif" width="90" height="50"/>
