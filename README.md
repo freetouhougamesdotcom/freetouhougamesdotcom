@@ -1,10 +1,14 @@
-theres no games here sorgy :^3
+<p align="center">theres no games here sorgy :^3</p>
 
-![hellyea](https://64.media.tumblr.com/9ce7e4ee8851b429a854cc6efbdb6742/04a7b1b602e2353d-1a/s250x400/77d42dc4ba6798fb6dd03e69bfcc3b530b1eb927.gifv)
+<p align="center">
+  <img src="https://64.media.tumblr.com/9ce7e4ee8851b429a854cc6efbdb6742/04a7b1b602e2353d-1a/s250x400/77d42dc4ba6798fb6dd03e69bfcc3b530b1eb927.gifv" alt="hellyea">
+</p>
 
-if you fit the basic dni criteria dont even talk to me !
+<p align="center">if you fit the basic dni criteria dont talk to me !</p>
 
-![bnuuy](https://64.media.tumblr.com/0c456c7159aec3498ccab646574a265d/66adcb333b7abb3c-57/s250x400/bf1bd705db167bc18d1d42ce02e14a1bdd345670.gifv)
+<p align="center">
+  <img src="https://64.media.tumblr.com/0c456c7159aec3498ccab646574a265d/66adcb333b7abb3c-57/s250x400/bf1bd705db167bc18d1d42ce02e14a1bdd345670.gifv" alt="bnuuypower">
+</p>
 
 ᯓ★⠀ current main interests !⠀⠀  touhou project, my little pony, kaiba, vocaloid, osamu sato, tf2, chao garden
 
@@ -14,6 +18,10 @@ if you fit the basic dni criteria dont even talk to me !
  
  ~♡• ⠀madoka magica, undertale, my deer friend shikanoko, gu-l, annoying orange
 
- ![yummy](https://64.media.tumblr.com/b03cf88287b569bfbde584f9be65159e/f85856f78ae1d7ea-c5/s250x400/1196462344d6bec021741e66cb79098b329ece70.gifv)
+ <p align="center">
+  <img src="https://64.media.tumblr.com/b03cf88287b569bfbde584f9be65159e/f85856f78ae1d7ea-c5/s250x400/1196462344d6bec021741e66cb79098b329ece70.gifv" alt="uraniumfever">
+</p>
 
- ![oguu](https://i.redd.it/64xcful87we91.jpg)
+ <p align="center">
+  <img src="https://i.redd.it/64xcful87we91.jpg" alt="oguu">
+</p>
