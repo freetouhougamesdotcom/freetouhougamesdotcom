@@ -33,6 +33,9 @@
   <img src="https://i.redd.it/64xcful87we91.jpg" alt="oguu">
 </p>
 
+<p align="center">──────────﹒★﹒﹒─</p>
+<p align="center">─﹒﹒★﹒──────────</p>
+
 <p align="center">
   <img src="https://64.media.tumblr.com/3c21e5261ac000e3ddc1b5d0f604167f/74eb2bf8bb567d0d-b5/s400x600/30399e7689f6942d7dfa2306b87d17ace28024c4.gifv" alt="moruu">
 </p>
