@@ -23,7 +23,7 @@
 
 <p align="center">please dont copy my skins or reupload them! being inspired by them is alright</p>
 
-<p align="center">i already uploaded a tutorial for my old skins [over here](https://youtu.be/R4P4CtNqXOU?si=1KXXcwdKBrDbOE9R) you can check that out but don't claim them as yours!!</p>
+<p align="center">i already uploaded a tutorial for my old skins <a href="https://youtu.be/R4P4CtNqXOU?si=fnu0txqoI4f3B3W5">over here</a> you can check that out but don't claim them as yours!!</p>
      
  <p align="center">
   <img src="https://64.media.tumblr.com/b03cf88287b569bfbde584f9be65159e/f85856f78ae1d7ea-c5/s250x400/1196462344d6bec021741e66cb79098b329ece70.gifv" alt="uraniumfever">
