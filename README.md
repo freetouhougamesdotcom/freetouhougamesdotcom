@@ -29,7 +29,7 @@
 
 <p align="center">i already uploaded a tutorial for my old skins <a href="https://youtu.be/R4P4CtNqXOU?si=fnu0txqoI4f3B3W5">over here</a> you can check that out but don't claim them as yours!!</p>
 
-<p align="center">i don't have a specific place where i'd sit in for hours so ill wander in random places around the map, recently i'm chilling beside the barrels near the bridge</p>
+<p align="center">i don't have a specific place where i'd sit in for hours so ill wander in random places around the map, recently i'm sitting beside the barrels near the mines</p>
      
  <p align="center">
   <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/imradioactive.gif?raw=true" alt="uraniumfever">
