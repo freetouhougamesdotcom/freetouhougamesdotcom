@@ -9,7 +9,7 @@
 <p align="center">if you fit the <a href="https://basic-dni.crd.co">basic dni criteria</a> dont even try to interact to me !</p>
 
 <p align="center">
-  <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/lunaticredeyes.gif?raw=true" alt="bnuuypower">
+  <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/lunaticredeyes.gif?raw=true" alt="bnuuypower"><img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/mokoublinkie.gif?raw=true" alt="imadethismyselfgrr">
 </p>
 
 ᯓ★⠀ current main interests !⠀⠀  touhou project, my little pony, kaiba (2008 anime), vocaloid, osamu sato, tf2, chao garden
