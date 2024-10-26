@@ -49,3 +49,9 @@
 <p align="center">
   <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/heartlocket.gif?raw=true" alt="moruu">
 </p>
+
+<p align="center">official touhou games i 1cc'd</p>
+<p align="center">easy 1cc: PCB, IN, SA, UFO, LOLK, HSIFS</p>
+<p align="center">normal 1cc: EOSD, PCB, IN, POFV, MOF, UFO, TD, DDC, LOLK, WBAWC, UM</p>
+<p align="center">hard 1cc: PCB, IN, TD</p>
+ 
