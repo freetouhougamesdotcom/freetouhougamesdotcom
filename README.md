@@ -8,8 +8,6 @@
 
 <p align="center">if you fit the <a href="https://basic-dni.crd.co">basic dni criteria</a> dont even try to interact to me !</p>
 
-<p align="center"> overly sexual skins and problematic skins will be blocked instantly </p>
-
 <p align="center">
   <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/lunaticredeyes.gif?raw=true" alt="bnuuypower"><img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/mokoublinkie.gif?raw=true" alt="imadethismyselfgrr">
 </p>
