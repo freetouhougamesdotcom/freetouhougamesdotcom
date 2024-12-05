@@ -2,7 +2,6 @@
      height="25"alt="chaoo"></p>
 
 <p align="center">
-  <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/bipride.gif?raw=true" alt="hellyea">
      <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/sexbeew.gif?raw=true" alt="sexisfuckingstupid">
 </p>
 
@@ -32,6 +31,8 @@
 <p align="center"> recently i started following a <a href="https://www.reddit.com/r/PonyTown/comments/1gbx5jw/shiny_eyes_tutorial_using_face_markings/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button">shiny / anime eye tutorial</a> for my recent skins by reddit user Owl_Bruh! </p>
 
 <p align="center">i don't have a specific spot where i'd sit in for hours so i always wander in random places around the map! feel free to greet me if you spot me </p>
+
+<p align="center">and also, dont get all lovey dovey with me since i had a bad relationship with someone before.. (you know who you are you liar) </p>
      
  <p align="center">
   <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/imradioactive.gif?raw=true" alt="uraniumfever">
@@ -42,15 +43,6 @@
      height="400"alt="oguu">
 </p>
 
-<p align="center">──────────﹒★﹒﹒─</p>
- <p align="center">
- <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/ilovemypartner.gif?raw=true"alt="uuuu">
- </p>
-<p align="center">─﹒﹒★﹒──────────</p>
-
-<p align="center">
-  <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/heartlocket.gif?raw=true" alt="moruu">
-</p>
 
 <p align="center">official touhou games i 1cc'd</p>
 <p align="center">easy 1cc: PCB, IN, SA, UFO, LOLK, HSIFS</p>
