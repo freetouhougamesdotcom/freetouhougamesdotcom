@@ -32,7 +32,8 @@
 
 <p align="center">i don't have a specific spot where i'd sit in for hours so i always wander in random places around the map! feel free to greet me if you spot me </p>
 
-<p align="center">and also, dont get all lovey dovey with me since i had a bad relationship with someone before.. (you know who you are you liar) </p>
+<p align="center">and also, dont get all lovey dovey with me since i had a bad relationship with someone before and decided that it's final..</p>
+     <p align="center">>(you know who you are you liar)</p>
      
  <p align="center">
   <img src="https://github.com/freetouhougamesdotcom/freetouhougamesdotcom/blob/main/imradioactive.gif?raw=true" alt="uraniumfever">
